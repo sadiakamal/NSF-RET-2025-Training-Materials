@@ -5,3 +5,7 @@ Welcome to the NSF-RET OSU 2025 Training Materials Repository. This collection o
 Feel free to reach out to the contributors if you have any questions:
 
 Sadia: Sadiakamalnova@gmail.com
+
+Anagha: anagha.siddhi308@gmail.com
+
+Shanto: nazrulhudashanto@gmail.com
